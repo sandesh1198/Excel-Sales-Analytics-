@@ -10,7 +10,8 @@ AtliQ Hardware, a global supplier of products such as PCs, peripherals, and netw
 
 **◆ Key Observations:**   Produced in-depth insights illuminating critical aspects of sales operations.
 
-[AtliQ Hardware Sales and Finance Project Reports_removed (1).pdf](https://github.com/user-attachments/files/15524629/AtliQ.Hardware.Sales.and.Finance.Project.Reports_removed.1.pdf)
+
+![Uploading AtliQ Hardware Sales and Finance Project Reports_removed (1)_page-0001.jpg…]()
 
 
 ![photo_2_2024-03-30_23-19-52](https://github.com/YatinLokhande/AtliQ-Excel-Sales-Analysis/assets/159231905/1ed7c52d-39bd-4a8a-96f3-2ec615d9e0b9)
